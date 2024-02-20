@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+A dragon was trying to hide in a storm.
